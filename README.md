@@ -1,1 +1,1 @@
-# reposit-rio-com-readme
+# repositrio-com-readme
